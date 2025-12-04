@@ -11,8 +11,8 @@
 
 ⸝⸝ㆍ  ♩　 　　　 **This is the happiest place 0n hermitcraft !**　　　　 　˃˃˂
 
- 　　　　　。[My pr0n0unce page ^0^](link)　　𓏵　　[My strawpage!](link) 
+ 　　　　　。[My pr0n0unce page ^0^](https://en.pronouns.page/@Smallishbeanz)　　𓏵　　[My strawpage!](link) 
 
 <img height="700" src="https://cdn.discordapp.com/attachments/1340971684185772076/1446280979290259476/Untitled510_20251205072315.png?ex=693369a0&is=69321820&hm=5d4a5e576372931c28e9ab9fcd7e671a053c2b5c30f8b1b862c3b127ed9525c1&" />
 
-␥﹒☓﹐Js another day, throw your cares away n laugh hand in hand with me !!  ﹕  💞
+　　　　　　␥﹒☓﹐Js another day, throw your cares away n laugh hand in hand with me !!  ﹕  💞
