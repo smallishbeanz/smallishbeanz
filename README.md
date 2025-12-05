@@ -11,7 +11,7 @@
 
 ⸝⸝ㆍ  ♩　 　　　 **hey letz do some magic stuff, sprinkle lil puffz ^q^**　　　　 　˃˃˂
 
- 　　　　　。[My pr0n0unce page ^0^](https://en.pronouns.page/@Smallishbeanz)　　𓏵　　[My strawpage!](link) 
+ 　　　　　。[My pr0n0unce page ^0^](https://en.pronouns.page/@Smallishbeanz)　　𓏵　　[My rentry ! ](https://rentry.co/qn3qry7v) 
 
 <img height="700" src="https://cdn.discordapp.com/attachments/1340971684185772076/1446280979290259476/Untitled510_20251205072315.png?ex=693369a0&is=69321820&hm=5d4a5e576372931c28e9ab9fcd7e671a053c2b5c30f8b1b862c3b127ed9525c1&" />
 
