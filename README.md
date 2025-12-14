@@ -1,7 +1,6 @@
 ## 𓏵　 ֶָ֢ 。⸝⸝  Smallishbeans  —  J0el ৴ ֶָ֢  ☁
 
-## <img height="1000" src="https://cdn.discordapp.com/attachments/1340971684185772076/1446102411524575324/Untitled508_20251204193403.png?ex=6932c352&is=693171d2&hm=6515611dc28ffef106ca1f8db6a8a2ddc465ef054dbe46d39286c31cc1bdf945&&" />
-
+## <img height="1000" src="https://cdn.discordapp.com/attachments/1340971684185772076/1446102411524575324/Untitled508_20251204193403.png?ex=693f4992&is=693df812&hm=c3a0629f1050c09eb7c9d19462ccba282a72e57c0714d36aaf5b444831ff0600&" />
 ## Everything's fine, everything's ~~n0rmal~~ ! 
 -# *d0n't g0 t0 the undergr0und.*
 
@@ -13,6 +12,6 @@
 
  　　　　　。[My pr0n0unce page ^0^](https://en.pronouns.page/@Smallishbeanz)　　𓏵　　[My rentry ! ](https://rentry.co/qn3qry7v) 
 
-<img height="700" src="https://cdn.discordapp.com/attachments/1340971684185772076/1446280979290259476/Untitled510_20251205072315.png?ex=693369a0&is=69321820&hm=5d4a5e576372931c28e9ab9fcd7e671a053c2b5c30f8b1b862c3b127ed9525c1&" />
-
+<img height="700" src="https://cdn.discordapp.com/attachments/1340971684185772076/1446280979290259476/Untitled510_20251205072315.png?ex=693f4720&is=693df5a0&hm=23c36850ac8de066b4085123b7674be2607ff9463e299dab22bb0f653362a5cf&" />
+<img src="https://cdn.discordapp.com/attachments/1340971684185772076/1446318561302937872/tumblr_8dbdd3596c0c358d42c86d6fe5bbed02_8f8b0409_1280.gif?ex=693ec160&is=693d6fe0&hm=aea3dc05c136a3ee96ca38bd71cfd86f4e19e647e37905ccd265a28804a51782&" />
 　　　　　　␥﹒☓﹐Js an0ther day, thr0w y0ur cares away n laugh hand in hand with me !!  ﹕  💞
