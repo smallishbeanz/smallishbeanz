@@ -10,7 +10,7 @@
 
 ⸝⸝ㆍ  ♩　 　　　 **hey letz do some magic stuff, sprinkle lil puffz ^q^**　　　　 　˃˃˂
 
- 　　　　　。[My pr0n0unce page ^0^](https://en.pronouns.page/@Smallishbeanz)　　𓏵　　[My rentry ! ](https://rentry.co/qn3qry7v) 
+ 　　　　　。[My pr0n0unce page ^0^](https://en.pronouns.page/@Smallishbeanz)　　𓏵　　[My rentry ! ](https://rentry.co/small1shbeanz) 
 
 <img height="700" src="https://cdn.discordapp.com/attachments/1340971684185772076/1446280979290259476/Untitled510_20251205072315.png?ex=693f4720&is=693df5a0&hm=23c36850ac8de066b4085123b7674be2607ff9463e299dab22bb0f653362a5cf&" />
 <img src="https://cdn.discordapp.com/attachments/1340971684185772076/1446318561302937872/tumblr_8dbdd3596c0c358d42c86d6fe5bbed02_8f8b0409_1280.gif?ex=693ec160&is=693d6fe0&hm=aea3dc05c136a3ee96ca38bd71cfd86f4e19e647e37905ccd265a28804a51782&" />
