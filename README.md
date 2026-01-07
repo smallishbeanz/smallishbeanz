@@ -1,6 +1,6 @@
 ## 𓏵　 ֶָ֢ 。⸝⸝  Smallishbeans  —  J0el ৴ ֶָ֢  ☁
 
-## <img height="1000" src="https://files.catbox.moe/8qbb0c.pn" />
+## <img height="1000" src="https://files.catbox.moe/8qbb0c.png" />
 ## Everything's fine, everything's ~~n0rmal~~ ! 
 -# *d0n't g0 t0 the undergr0und.*
 
